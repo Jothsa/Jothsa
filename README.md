@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I enjoy have a ton of interests and am somewhat of a jack-of-all-trades. I especially enjoy coding and swimming.
+
+I am currently studying Electrical Engineering.
